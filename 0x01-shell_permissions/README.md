@@ -1,1 +1,1 @@
-look into the mirror
+directories
